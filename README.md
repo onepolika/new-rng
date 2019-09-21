@@ -1,1 +1,1 @@
- https://onepolika.github.io/rsschool-cv/cv
+ https://onepolika.github.io/rszv/ceq
