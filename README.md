@@ -1,1 +1,1 @@
- https://onepolika.github.io/rszv/ceq
+ https://onepolika.github.io/new-rng/ceq
